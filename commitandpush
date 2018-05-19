@@ -1,6 +1,0 @@
-#!bin/bash
-
-cd /home/patrick/chapbook
-git add -A
-git commit -m  "monomanical automatic"
-git push
