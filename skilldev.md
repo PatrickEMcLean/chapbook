@@ -11,6 +11,11 @@ is functional, whole body strength (the exact opposite of what cosmetic
 weightlifting develops) and the ability to transition to and from the ground
 (falling and rolling.) A close second to those are balance/propriecpion. 
 
+
+So I'd like to look at all the things that kids are learning when they play a
+simple game. Forgive the long post, but as you'll see, the benefits of these
+games are surprisingly deep. 
+
 So here's a simple game. Two kids on a balance beam with foam swords. Knock the
 other kid off you lose. Vary the hieght of the beam and the density of the
 swords so the game is just danergous enough to be fun. 
@@ -25,7 +30,14 @@ beam.
 
 Controlling your fear adds another element. The higher the beam goes, the
 scarier the activity becomes. Even an inch and a half off the ground effects
-the psyche. Especially if you are not comfortable with fall 
+the psyche. Especially if you are not comfortable with falling and rolling --
+or have ever twisted an ankle. To say nothing of getting swatted with a piece
+of foam. Physiologically, a startle response is exactly the same in every
+person. Quick inhale, psoaz muscle fires and the center of gravity moves. The
+more that you startle or have this reaction, the harder it is to keep your
+balance. 
+
+ 
 
 
 
