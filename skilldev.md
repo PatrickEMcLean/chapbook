@@ -40,8 +40,10 @@ balance.
 Layer on to that the social aspects. The game of trying to psyche
 out your opponent. Everything you learn from working with people of different
 temperment, sizees and abilities. Learning that you can take and give a wack. How hard is to
-hard and what is and isn't appropriate levels of roughness. And, of course, the
-tremendous benefits of laughter. 
+hard and what is and isn't appropriate levels of roughness. The creative
+elements of problem solving under pressure and the generation and testing of
+new strategiest. And, of course, the tremendous benefits of laughter and shared
+camraderie.  
  
 
 
