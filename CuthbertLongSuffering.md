@@ -23,6 +23,12 @@ Cuthbert dragged his weary bones from his bed and climbed into his tuxedo.
 Beneath his carefully neutral professional facade, he struggled to calm his
 emotions by telling himself that it could, in fact be worse. An eccentric
 master, after all, was hardly unknown in the annals of fine English butlery. It
-was something to be born with dignity and aplomb. 
+was something to be born with dignity and aplomb. He could have been in service
+to Mad King George.
+
+But as he took the secret elevator down into the damp and drafty cave that
+Bryce Warner called the "Lynx's den" he began to doubt his judgement. Mad, King
+George might have been, but, as far as history recorded, he was a great one for
+spending the night in his own bed. 
 
 but at 12:15 am, that humorous dive
