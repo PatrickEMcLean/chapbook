@@ -11,6 +11,8 @@ deeply into a long line of Engish butlers, said, "Yes, sir?"
 
 Evil, of course was not ahoof, or even remotely quadrapedal. It was Master
 Warner's idea of a joke, a reference to himself as a young man, and his
-misreading of a Sherlock Holmes story. It was the kind of foible
+misreading of a Sherlock Holmes story. It was the kind of foible that very
+wealthy people thought endeared them to their elderly servants. But nothing
+coming through that gilded age squalk box at 12:15 a.m. could be endearing. 
 
 but at 12:15 am, that humorous dive
