@@ -15,4 +15,14 @@ misreading of a Sherlock Holmes story. It was the kind of foible that very
 wealthy people thought endeared them to their elderly servants. But nothing
 coming through that gilded age squalk box at 12:15 a.m. could be endearing. 
 
+"Afoot sir? Are you sure?" 
+
+"To the Lynx's Den!" came the eager voice and then nothing. 
+
+Cuthbert dragged his weary bones from his bed and climbed into his tuxedo.
+Beneath his carefully neutral professional facade, he struggled to calm his
+emotions by telling himself that it could, in fact be worse. An eccentric
+master, after all, was hardly unknown in the annals of fine English butlery. It
+was something to be born with dignity and aplomb. 
+
 but at 12:15 am, that humorous dive
