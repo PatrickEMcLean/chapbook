@@ -31,4 +31,7 @@ Bryce Warner called the "Lynx's den" he began to doubt his judgement. Mad, King
 George might have been, but, as far as history recorded, he was a great one for
 spending the night in his own bed. 
 
+
+No man is a hero to his valet. 
+
 but at 12:15 am, that humorous dive
