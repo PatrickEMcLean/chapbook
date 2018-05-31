@@ -92,9 +92,18 @@ The Virginian by Owen Wister. Effectively the first cowboy story. (Although,
 one could make the case that the Leatherstocking Saga by James Fenimore Cooper,
 could qualify as a western, even though I think it's really more of an Indian story)
 
-Or say you like romance novels. 
+Or say you like romance novels. After you've read 30 of them, go back as a far
+as you can. Perhaps the sagas of chivalry that Cervantes makes such light of in
+Don Quixhote. 
 
- 
+Read poetry, and read it aloud. Most poetry is awful stuff. You'll probably
+write some in adolescence. It will be awful too, but you should write it
+anyway. But even the utter horror of most poetry does not stop the best poetry
+from being indispensible. "Every word was once a stroke of genius" and, to me,
+it seems like they were all coined by a poetic instinct. 
+
+And most importantly of all, read what brings out the best in you. What rings you like a
+bell. What most expands your experience of being alive.
 
   
 
