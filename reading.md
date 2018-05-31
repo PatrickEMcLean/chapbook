@@ -29,7 +29,30 @@ Right now I read about fifty books
 a year. If life goes in a pleasing direction, this number will go up. But as I
 can see the end of my life from where I sit, I can see that this number is
 finite. And have I have started to have some care for which books I take time
-with. 
+with.
+
+And even though you have an eternity of time compared to me, don't waste time 
+finishing a book, just because you've started it. If it's not serving you,
+pitch it to the wall. For many years, I litearally did this with paperbacks. I
+averaged about one a year. The book would be so bad that I would, in mid-page,
+heave it at the wall and leave it where it fell until I removed it from the
+house. I do not recommend this practice with hardbacks or loaned books, but
+your mileage may vary. 
+
+That said, read books you don't agree with. Take their arguments and ideas
+seriously. But if the book wastes your time in
+making it's arguements. To the wall with it, and find a beter book in service
+of those ideas. 
+
+When attempting new or complicated subjects, always make sure that the writer
+isn't is incompetent or ill-intentioned. And by that I mean, if it's hard or
+confusing, make sure the subject is actually hard or confusing, and not that
+the writer is trying to use a lot of words to cover up a bad or non-existent
+point. Your time is valuable, make sure that unshowered, hunchbacked,
+fat-fingered keyboard pounder rewards it with each page. If you get frustrated,
+keep searching. As H.L. Mencken said, "There are no boring subjects, only bad
+writers."  
+ 
 
 I attempt a only a few truly great books a year. No more than one Russian
 Novel, for example. But by great, I mean that they are books that have real
@@ -69,7 +92,9 @@ The Virginian by Owen Wister. Effectively the first cowboy story. (Although,
 one could make the case that the Leatherstocking Saga by James Fenimore Cooper,
 could qualify as a western, even though I think it's really more of an Indian story)
 
-Or say you like romance novels.  
+Or say you like romance novels. 
+
+ 
 
   
 
